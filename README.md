@@ -58,6 +58,9 @@ I’m FLiNG, with over 10 years of making top-tier trainers for gamers worldwide
 - **Game Version**: Build 17862377+ (updated regularly).  
 - **Note**: Experimental features like “Unlock All” are in testing — report bugs!  
 
+![изображение](https://github.com/user-attachments/assets/3aa3121c-03ba-484e-bf1f-bb88433f42cc)
+
+
 ---
 
 ## 🔍 Find Me Easily!  
